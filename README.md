@@ -3,6 +3,4 @@ My preparation and experience for TOEFL
 
 You can find details on different branches
 
-2020.03.26 上传了TOEFL词汇
-
-2020.03.27 上传了TOEFL阅读真题
+口语只考2356题
